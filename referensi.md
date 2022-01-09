@@ -6,4 +6,8 @@
 4. [The Use of Digital Vlog Media to Enhance Students’ Speaking Skill](http://eprints.unm.ac.id/15277/1/ARTIKEL.pdf)
 5. [THE EFFECT OF USING VIDEO BLOGGING TOWARDS STUDENTS’ SPEAKING ABILITY IN VOCATIONAL SCHOOL](https://ejournal.unesa.ac.id/index.php/retain/article/view/33847/30996)
 6. [Vlogging as a Medium for Eighth Graders of SMP Negeri 1 Gresik in Speaking Recount Text](https://ejournal.unesa.ac.id/index.php/retain/article/view/25304/23189)
+7. [Vlog Sebagai Media Pembelajaran Bahasa Indonesia untuk Mengembangkan Kemampuan Berbahasa Peserta Didik](https://publikasiilmiah.ums.ac.id/handle/11617/9930)
+8. [Pengembangan Media Vlog (Video Blog) Sebagai Media Alternatif untuk Melatif Proses Perpikir Kritis Siswa dalam Materi Laporan Perjalanan](http://proceedings.upi.edu/index.php/riksabahasa/article/view/230/219)
+9. [PELATIHAN MEDIA PEMBELAJARAN VIDEO BLOG \(VLOG\)](https://lppm.undiksha.ac.id/senadimas2021/prosiding/file/130.pdf)
+10. 
 
